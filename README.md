@@ -1,4 +1,4 @@
-# Tharanesh Selvam
+# THARANESH S
 
 Integrated M.Tech CSE Student | Aspiring Software Engineer
 
